@@ -1,1 +1,2 @@
-# stdy_test
+
+my favorite hobby is trading
